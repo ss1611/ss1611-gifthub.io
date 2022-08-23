@@ -12,5 +12,10 @@ I am a full time English and US Literature student at University of Essex and I 
 
 
 **education**
--University of Essex-2018-present
+-University of Essex-2020-present
+
+
+
+
+
 -Tefl 2021-2021
